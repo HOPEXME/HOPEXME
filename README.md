@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Something Fun
 - 📫 How to reach me @technicaladi11022004@gmail.com
 - 😄 Pronouns:HOPE
-- ⚡ Fun fact: I'M CRAZY FOR GAMES
+- ⚡ Fun fact: I'M CRAZY FOR OPEN WORLD GAMES
 
 <!---
 HOPEXME/HOPEXME is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
